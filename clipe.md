@@ -1,4 +1,4 @@
-# 851.472.000 secunde
+# 851.472.000 de clipe
 
 aş vrea atât de mult s-adorm  
 să scap de viaţă şi nesomn  
