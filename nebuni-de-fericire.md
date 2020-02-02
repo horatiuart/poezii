@@ -1,4 +1,4 @@
-﻿# nebuni de fericire
+# nebuni de fericire
 
 nebuni de fericire... ei au înnebunit de fericire,  
 unii în război,  

@@ -1,4 +1,4 @@
-﻿# marea de lacrimi
+# marea de lacrimi
 
 e o mare de lacrimi totul,  
 iar noi naufragiaţi  

@@ -1,4 +1,4 @@
-﻿# eu te iubesc
+# eu te iubesc
 
 eu te iubesc  
 eu te iubesc pe tine  

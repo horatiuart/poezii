@@ -1,4 +1,4 @@
-﻿# gările
+# gările
 
 a fost odată o clipă nemuritoare,  
 un Univers care stă fără să se mişte,  

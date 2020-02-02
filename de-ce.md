@@ -1,4 +1,4 @@
-﻿# de ce
+# de ce
 
 de ce  
 căutăm  

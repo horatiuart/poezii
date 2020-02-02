@@ -1,4 +1,4 @@
-﻿# oameni şi răni
+# oameni şi răni
 
 sanatoriul în care suntem închişi cu toţii,  
 unde nebunii sunt doctori şi doctorii  

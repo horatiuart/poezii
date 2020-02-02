@@ -1,4 +1,4 @@
-﻿# universala urmă
+# universala urmă
 
 voi muri  
 într-o zi cu soare,  

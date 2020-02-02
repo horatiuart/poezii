@@ -1,4 +1,4 @@
-﻿# cea mai perfectă formă de poezie
+# cea mai perfectă formă de poezie
 
 cea mai perfectă formă de poezie  
 e o poezie simplă  

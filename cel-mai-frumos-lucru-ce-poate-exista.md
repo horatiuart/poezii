@@ -1,4 +1,4 @@
-﻿# cel mai frumos lucru ce poate exista
+# cel mai frumos lucru ce poate exista
 
 cel mai frumos lucru ce poate exista  
 e o grădină nemărginită, plină de flori  

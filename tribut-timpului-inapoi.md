@@ -1,4 +1,4 @@
-﻿# tribut timpului înapoi
+# tribut timpului înapoi
 
 mereu mă voi întoarce aici  
 când, ostenit de viaţă  

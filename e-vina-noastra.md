@@ -1,4 +1,4 @@
-﻿# e vina noastră
+# e vina noastră
 
 e vina noastră... căci noi ucidem  
 cu gândul  

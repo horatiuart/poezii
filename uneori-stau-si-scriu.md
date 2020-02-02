@@ -1,4 +1,4 @@
-﻿# uneori stau şi scriu
+# uneori stau şi scriu
 
 uneori stau şi scriu  
 acelaşi vers de mii de ani,  

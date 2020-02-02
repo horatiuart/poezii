@@ -1,4 +1,4 @@
-﻿# aştept
+# aştept
 
 aştept... clipe ce trec,  
 soare răsare, lună apune,  

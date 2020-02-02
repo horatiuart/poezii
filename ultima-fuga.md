@@ -1,4 +1,4 @@
-﻿# ultima fugă
+# ultima fugă
 
 copilărie, joc al vieţii  
 te pierzi într-o flacără ce n-o să lase cenuşă  

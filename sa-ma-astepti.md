@@ -1,4 +1,4 @@
-﻿# să mă aştepţi
+# să mă aştepţi
 
 să mă aştepţi, poem nescris  
 să te continui mâine

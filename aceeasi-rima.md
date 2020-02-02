@@ -1,4 +1,4 @@
-﻿# aceeaşi rimă
+# aceeaşi rimă
 
 şi trec, şi trec toate,  
 zi după zi, noapte de noapte,  

@@ -1,4 +1,4 @@
-﻿# eu te iubesc (variantă)
+# eu te iubesc (variantă)
 
 Eu te iubesc, deși nu te cunosc, și nu te-am întâlnit vreodată.
 
