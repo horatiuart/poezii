@@ -23,7 +23,7 @@
 
 [prima mea poezie de speranţă](prima-mea-poezie-de-speranta.md)
 
-[851.472.000 secunde](secunde.md)
+[851.472.000 de clipe](clipe.md)
 
 [spectacol](spectacol.md)
 
